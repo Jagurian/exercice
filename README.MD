@@ -36,6 +36,6 @@ i want at the end find a job gains some experience and then maybe go remote
 
 ## my best GIF
 
-https://media.tenor.com/9RCIDZjkhBsAAAAC/hamster-meme.gif
+![hamster](https://media.tenor.com/9RCIDZjkhBsAAAAC/hamster-meme.gif)
 
 
